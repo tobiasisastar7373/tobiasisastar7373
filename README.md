@@ -53,9 +53,7 @@
 <details>
     <summary>𝓓𝓝𝓘</summary>
 
-- just the basic
-- homophobic actions/commits
-- racist actions and commits
+- I dont have any rn!
 
 
    </details>

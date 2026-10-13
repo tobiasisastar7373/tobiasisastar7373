@@ -62,7 +62,7 @@
  <img width="344" height="24" alt="tumblr_6439d006468104ff80a6010e25e3a072_9655bbea_400" src="https://github.com/user-attachments/assets/c2815ebf-8d55-47d6-b367-26c903383087" />
 </details>
 <div align="left">
- 𝖗𝖆𝖇𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙
+ "𝖗𝖆𝖇𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙?"
 </details>
 <div align="left">
  

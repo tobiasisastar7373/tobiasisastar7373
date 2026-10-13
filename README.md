@@ -2,5 +2,5 @@
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/886e17e0-2c5f-46fa-9353-09feca1bba06" />  
                                                  ℎ𝑒/ℎ𝑖𝑚
 
-                                                          ~𝖍𝖆𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙~
+                                                          ~𝖍𝖆𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙
                                                 

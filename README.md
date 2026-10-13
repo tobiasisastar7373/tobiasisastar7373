@@ -1,7 +1,4 @@
 <img width="1035" height="21" alt="image" src="https://github.com/user-attachments/assets/6c1aa8f4-b052-41c2-bf70-d670a0963b23" />  
-<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/886e17e0-2c5f-46fa-9353-09feca1bba06" />  
-                                                                 𝖍𝖆𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙
-
-                                                  
-
-                                                     
+                                                        𝖍𝖆𝖇𝖎𝖙 𝖔𝖗 𝖍𝖆𝖇𝖎𝖙
+                                                                       "𝖘𝖙𝖚𝖕𝖎𝖉 𝖗𝖆𝖇𝖎𝖙"
+                                                                        
